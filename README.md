@@ -1,2 +1,2 @@
-# Latihan-PBO-1
-Latihan 1 PBO 123140018
+# Latihan dan Tugas-PBO-1
+Latihan & Tugas 1 PBO Garis Rayya Rabbani 123140018
